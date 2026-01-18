@@ -1,4 +1,4 @@
-# Sān-Z、HOYO-MiX、Ashley Alisha – Tiny Giant
+# Sān-Z, HOYO-MiX, & Ashley Alisha – Tiny Giant
 
 > **歌詞登録ステータス：同期歌詞あり**
 
